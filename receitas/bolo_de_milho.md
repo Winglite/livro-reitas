@@ -2,34 +2,27 @@
 
 ##**INGREDIENTES**
 
+- 1 lata de milho (sem o líquido)
 
-1 lata de milho (sem o líquido)
+- 1 lata de leite (medida da lata de milho)
 
-1 lata de leite (medida da lata de milho)
+- 1 lata de açúcar (medida da lata de milho)
 
-1 lata de açúcar (medida da lata de milho)
+- 1 lata de flocão de milho
 
-1 lata de flocão de milho
-
-1/2 lata de óleo de soja
-
-3 ovos inteiros
-
-1 colher (sopa) de fermento em pó
-
-margarina
-
-farinha de trigo
-
+- 1/2 lata de óleo de soja
+- 3 ovos inteiros
+- 1 colher (sopa) de fermento em pó
+- margarina
+- farinha de trigo
 
 ##**MODO DE PREPARO**
-
 
 1 - Escorra o milho e use a própria lata para as medidas.
 
 2 - Unte e enfarinhe uma forma de bolo com furo.
 
-3 - Preaqueça o forno.
+3 - Pre-aqueça o forno.
 
 4 - Coloque no liquidificador o milho (já escorrido), o leite, açúcar, flocão de milho, óleo, ovos e bata bem até que o milho fique bem moído.
 
