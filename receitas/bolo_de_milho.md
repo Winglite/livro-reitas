@@ -1,6 +1,6 @@
-#Bolo de Milho
+# Bolo de Milho :cake:
 
-##**INGREDIENTES**
+## **INGREDIENTES**
 
 - 1 lata de milho (sem o líquido)
 
@@ -16,7 +16,7 @@
 - margarina
 - farinha de trigo
 
-##**MODO DE PREPARO**
+## **MODO DE PREPARO**
 
 1 - Escorra o milho e use a própria lata para as medidas.
 
